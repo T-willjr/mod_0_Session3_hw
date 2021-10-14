@@ -1,0 +1,3 @@
+I am motivated to change my career for multiple reasons. I want a career where I feel challenged and fulfilled from completing any tasks or projects that I may be faced with. My position now as an Administration Manager is simple and since there is not a lot of work it is very boring. That is why I am searching for a career that is more engaging and I believe software development is the type of career that will always have me working and engaged learning new things.
+
+It is also important for me to join a career field that gives me the flexibility to travel/obtain work anywhere throughout the world. I plan on moving to Europe or somewhere else in the world and the skills I learn from programming would allow me to do just that.  
